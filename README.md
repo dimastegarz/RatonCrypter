@@ -1,2 +1,2 @@
-# RatonCrypter
-Basic c# ransomware template
+very very cool!11
+https://t.me/ratontool
